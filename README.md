@@ -1,3 +1,4 @@
+![logo](Github.jpg)
 <h1 align="center">Hi 👋, I'm Akash Sonawane</h1>
 <h3 align="center">A Passionate Linux Administrator & Software Developer</h3>
 
