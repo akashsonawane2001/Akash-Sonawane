@@ -10,7 +10,7 @@
 
 - 📫 How to reach me **absonawane13@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1dDr8kLFvUo5TMz-WsLXEIVKa4OLG_4tV/view?usp=drivesdk](https://drive.google.com/file/d/1dDr8kLFvUo5TMz-WsLXEIVKa4OLG_4tV/view?usp=drivesdk)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1L9v42MEzwr2bNob3_rV5ihzGsSw9R0lH/view?usp=drivesdk](https://drive.google.com/file/d/1L9v42MEzwr2bNob3_rV5ihzGsSw9R0lH/view?usp=drivesdk)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
